@@ -1,7 +1,7 @@
 # Lizette-Cuarte
 BS Philosophy • Human Development • Ethics • Law
 
-# Hi! I'm Hazel 👋
+# Hi! I'm Lizette 👋
 
 🎓 BS Philosophy student  
 ⚖️ Interested in Law, Ethics, and AI  
